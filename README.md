@@ -1,0 +1,1 @@
+# sprawdzian_nr1
